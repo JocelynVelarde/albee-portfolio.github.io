@@ -9,3 +9,4 @@ My name is Albee! Nice to meet you
 - Helped 4 bees getting started with GitHub
 
 ### Professional Experience
+> NO PROFESSIONAL EXPERIENCIE, LOOKING FOR AN INTERNSHIP 🐝
